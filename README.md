@@ -1,1 +1,1 @@
-# qualifica-o
+# qualificacao
